@@ -1,5 +1,5 @@
 # Future CV
-## 소개
+## 소개서
 ### 1. 이름: 유혜빈 
 ### 2. 이메일주소: yuhyebeenofficial@gmail.com 
 ### 3. 자기소개
